@@ -13,7 +13,7 @@ I will appear as Judge Turpin in **Sweeney Todd**, as performed at [the Brecksvi
 
 ## What Have I Seen You In?
 
-Any one of a number of things. My one-page theatrical resume is here.
+Any one of a number of things. My [one-page theatrical resume is here](https://github.com/THOMASELOVE/theater/blob/master/thomas_love_theatrical_resume_2018.pdf), and I'll add more details if that seems useful at some point in the future.
 
 ## If I'm a student/friend/neighbor/colleague of yours, are you expecting me to come see you in theater?
 
