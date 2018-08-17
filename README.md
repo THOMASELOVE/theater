@@ -17,7 +17,7 @@ Any one of a number of things. My [one-page theatrical resume is here](https://g
 
 ## If I'm a student/friend/neighbor/colleague of yours, are you expecting me to come see you in theater?
 
-I'm always delighted to see anyone I know at any show I do. Please do come if you are interested.
+I'm always delighted to see anyone I know at any show I do. Please do come if you are interested. 
 
-But please feel no obligation. Attending (or not attending) a show I'm in carries no weight with me at all in any professional capacity.
+I also have various professional roles (as a teacher, for example) where I have some nominal control over other people's happiness or work. If you're someone who interacts with me professionally, please feel no obligation to attend a show I'm in. Attending (or not attending) a show I'm in carries **no** weight with me at all in any professional capacity.
 
