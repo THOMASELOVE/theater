@@ -2,7 +2,7 @@
 
 This is the page describing Thomas Love's theatrical exploits.
 
-## Next Production?
+## Next Production: April 26 - May 18 2019: *A Funny Thing Happened on the Way to the Forum*
 
 I am appearing as Miles Gloriosus in *A Funny Thing Happened on the Way to the Forum* at Aurora Community Theatre, beginning April 26 for ten performances at 8 PM Fridays and Saturdays through May 18, and also 3 PM Sundays May 5 and 12. I believe that *Forum* has a strong case to be considered the funniest musical ever written. Aurora Community Theatre is located at 115 E. Pioneer Trail, near the intersection of SR 43 and 306, at the gazebo, in the center of Aurora, Ohio. Tickets for all shows are available online anytime, including seat selection, at https://auroracommunitytheatre.com/ or by calling 330-562-1818.
 
