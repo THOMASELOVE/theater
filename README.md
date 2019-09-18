@@ -2,7 +2,7 @@
 
 This is the page describing Thomas Love's theatrical exploits.
 
-## Next Show
+## My Next Show will be in November 2019
 
 I will be appearing as Selsdon Mowbray in *Noises Off*, as presented by [the Hudson Players](https://www.hudsonplayers.com/) on November 1, 2, 8, 9, 10, 15 and 16, 2019. All performances at 8 PM except for a 2 PM matinee on Sunday November 10.
 
