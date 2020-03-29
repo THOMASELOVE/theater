@@ -2,9 +2,9 @@
 
 This is the page describing Thomas Love's theatrical exploits.
 
-## My Next Show will be in November 2019
+## My Most Recent Show was in November 2019. No current plans.
 
-I will be appearing as Selsdon Mowbray in *Noises Off*, as presented by [the Hudson Players](https://www.hudsonplayers.com/) on November 1, 2, 8, 9, 10, 15 and 16, 2019. All performances at 8 PM except for a 2 PM matinee on Sunday November 10. Tickets [are available here](https://app.arts-people.com/index.php?actions=4&p=1).
+I played Selsdon Mowbray in *Noises Off*, as presented by [the Hudson Players](https://www.hudsonplayers.com/) on November 1, 2, 8, 9, 10, 15 and 16, 2019. All performances at 8 PM except for a 2 PM matinee on Sunday November 10. Tickets [are available here](https://app.arts-people.com/index.php?actions=4&p=1).
 
 Called "the funniest farce ever written," *Noises Off* presents a manic menagerie of itinerant actors rehearsing a flop called Nothing’s On in a precision timed, cunningly constructed, rip-roaringly hilarious comedy of epic proportions. With opening night just hours away, a motley company of actors stumbles through a frantic, final rehearsal of the British sex farce Nothing On, and things could not be going worse. Lines are forgotten, love triangles are unraveling, sardines are flying everywhere, and complete pandemonium ensues. Will the cast pull their act together on stage even if they can’t behind the scenes?
 
