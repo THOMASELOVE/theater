@@ -4,7 +4,7 @@ This is the page describing Thomas Love's theatrical exploits.
 
 ## My next performance will be in "A Gentleman's Guide to Love and Murder" at Aurora Community Theatre in October/November 2021.
 
-I'll be playing Chief Inspector Pinckney and various other small roles in this, the 2014 Tony Winning Best Musical. The performances are at 8 PM Fridays and Saturdays (and a couple of Sunday 2 PM matinees) from October 28 through November 20.
+I'll be playing Chief Inspector Pinckney and various other small roles in this, the 2014 Tony Winning Best Musical. The performances are at 8 PM Fridays and Saturdays (and a couple of Sunday 2 PM matinees) from October 29 through November 20.
 
 - Tickets are available through https://www.auroracommunitytheatre.com/. Aurora Community Theatre requires proof of vaccination or a negative Covid-19 test from within 72 hours of the performance date and time for entry. An image on your phone is acceptable. This precaution will be required of everyone entering the theatre. In addition masks also will be required inside the building, lobby, and all public spaces.
 
