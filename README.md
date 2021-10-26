@@ -6,7 +6,7 @@ This is the page describing Thomas Love's theatrical exploits.
 
 I'll be playing Chief Inspector Pinckney and various other small roles in this, the 2014 Tony Winning Best Musical. The performances are at 8 PM Fridays and Saturdays (and a couple of Sunday 2 PM matinees) from October 28 through November 20.
 
-- Tickets are available through https://www.auroracommunitytheatre.com/. 
+- Tickets are available through https://www.auroracommunitytheatre.com/. Aurora Community Theatre requires proof of vaccination or a negative Covid-19 test from within 72 hours of the performance date and time for entry. An image on your phone is acceptable. This precaution will be required of everyone entering the theatre. In addition masks also will be required inside the building, lobby, and all public spaces.
 
 > When the low-born Monty Navarro discovers that he's eighth in line for an Earldom, he decides to better his odds of inheritance with a great deal of charm… and a dash of murder. But what about love? Perhaps there’s more to Monty’s maneuvers than just money on his path to becoming the ninth Earl of Highhurst.
 
