@@ -2,6 +2,10 @@
 
 This is the page describing Thomas Love's theatrical exploits.
 
+## I'm going to be in a show this Friday and Saturday night. 
+
+It is called "A Gentlemen's Guide to Love and Murder" at the [Chagrin Valley Little Theater](https://cvlt.org/events/gentlemans-guide/). I was in a production of this show last Fall, and am coming in now at the last moment to do two performances. I found this out last night, and will be working with one rehearsal, so we'll see how this goes. If you're interested, tickets are available at that link.
+
 ## My next scheduled performances will be as Brother Jeremiah in "Something Rotten" at [Hudson Players](https://www.hudsonplayers.com/something-rotten/)
 
 While I've been cast in the show, and we've begun rehearsals, we are delayed by the pandemic for now. New dates will be announced in late Summer 2022.
