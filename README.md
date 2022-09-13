@@ -4,7 +4,9 @@ This is the page describing Thomas Love's theatrical exploits.
 
 ## My next scheduled performances will be as Brother Jeremiah in the hilarious "Something Rotten" at [Hudson Players](https://www.hudsonplayers.com/something-rotten/)
 
-Set in the 1590s, brothers Nick and Nigel Bottom are desperate to write a hit play but are stuck in the shadows of that Renaissance rockstar known as “The Bard.” When a local soothsayer foretells that the future of theater involves singing, dancing and acting at the same time, Nick and Nigel set out to write the world’s very first musical. Something Rotten was nominated for 10 Tony Awards, including Best Musical. Our performances are October 28 - November 19, 2022 at the following times.
+Set in the 1590s, brothers Nick and Nigel Bottom are desperate to write a hit play but are stuck in the shadows of that Renaissance rockstar known as “The Bard.” When a local soothsayer foretells that the future of theater involves singing, dancing and acting at the same time, Nick and Nigel set out to write the world’s very first musical. Something Rotten was nominated for 10 Tony Awards, including Best Musical. 
+
+Our performances are October 28 - November 19, 2022 at the following times.
 
 Fridays at 8 PM | Saturdays at 8 PM | Sundays at 2 PM
 :-------------: | :---------------: | :-------------:
