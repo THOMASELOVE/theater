@@ -13,7 +13,7 @@ November 4 | November 5 | November 6
 November 11 | November 12 | November 13
 November 18 | November 19
 
-To get tickets, visit [this link](https://app.arts-people.com/index.php?actions=4&p=1). Reservations are strongly recommended, and tickets are $15, with group, senior and student discounts available.
+To get tickets, visit [this link](https://app.arts-people.com/index.php?actions=4&p=1). Reservations are strongly recommended, and tickets are $15, with group, senior and student discounts available. Audience members must wear masks.
 
 ## If I'm a student/friend/neighbor/colleague of yours, are you expecting me to come see you in theater?
 
