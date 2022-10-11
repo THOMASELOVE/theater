@@ -15,11 +15,11 @@ November 4 | November 5 | November 6
 November 11 | November 12 | November 13
 November 18 | November 19
 
-To get tickets, visit [this link](https://app.arts-people.com/index.php?actions=4&p=1). Reservations are strongly recommended, and tickets are $15, with group, senior and student discounts (to $12) available. Audience members must wear masks.
+To get tickets, visit [this link](https://app.arts-people.com/index.php?actions=4&p=1). Reservations are strongly recommended, and tickets are $15, with group, senior and student discounts (to $12) available. Audience members are encouraged but **not required** to wear masks.
 
 ## If I'm a student/friend/neighbor/colleague of yours, are you expecting me to come see you in theater?
 
-I'm always delighted to see anyone I know at any show I do. Please do come if you are interested. 
+I'm always delighted to see anyone I know at any show I do. Please do come if you are interested, and comfortable being around people who are unmasked. 
 
 I also have various professional roles (as a teacher, for example) where I have some nominal control over other people's happiness or work. If you're someone who interacts with me professionally, please feel no obligation to attend a show I'm in. Attending (or not attending) a show I'm in carries **no** weight with me at all in any professional capacity.
 
