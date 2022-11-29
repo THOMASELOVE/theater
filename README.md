@@ -2,20 +2,7 @@
 
 This is the page describing Thomas Love's theatrical exploits.
 
-## My next scheduled performances will be as Brother Jeremiah in the hilarious "Something Rotten" at [Hudson Players](https://www.hudsonplayers.com/something-rotten/)
-
-Set in the 1590s, brothers Nick and Nigel Bottom are desperate to write a hit play but are stuck in the shadows of that Renaissance rockstar known as “The Bard.” When a local soothsayer foretells that the future of theater involves singing, dancing and acting at the same time, Nick and Nigel set out to write the world’s very first musical. Something Rotten was nominated for 10 Tony Awards, including Best Musical. 
-
-Our performances are October 28 - November 19, 2022 at the following times.
-
-Fridays at 8 PM | Saturdays at 8 PM | Sundays at 2 PM
-:-------------: | :---------------: | :-------------:
-October 28 | October 29 | --
-November 4 | November 5 | November 6
-November 11 | November 12 | November 13
-November 18 | November 19
-
-To get tickets, visit [this link](https://app.arts-people.com/index.php?actions=4&p=1). Reservations are strongly recommended, and tickets are $15, with group, senior and student discounts (to $12) available. Audience members are encouraged but **not required** to wear masks.
+## My next performances will be as Chris and Inspector Carter in The Play That Goes Wrong at [Aurora Community Theatre](https://www.auroracommunitytheatre.com/shows-1) January 27 - February 18, 2023
 
 ## If I'm a student/friend/neighbor/colleague of yours, are you expecting me to come see you in theater?
 
@@ -29,6 +16,7 @@ Any one of a number of things. My [one-page theatrical resume is here](https://g
 
 ## Last Few Productions
 
+- I played Brother Jeremiah in "Something Rotten" at Hudson Players, directed by Claudia Lillibridge, with musical direction by Ron Jones, and choreography by Conni Caldren Fleming, and produced by Gary Maher in October/November 2022.
 - I played Chief Inspector Pinckney and various other small roles in **A Gentleman's Guide to Love and Murder** at Aurora Community Theatre, directed by Ann Nyenhuis, musically directed by Dustin Oliver, choreographed by Marc Stiver-Howard and produced by Katie Hintze in October/November 2021.
   - I then reprised the same roles in five performances of the Chagrin Valley Little Theatre's production, directed by Marc Stiver-Howard and musically directed by Keith Stiver in March 2022.
 - I played Selsdon Mowbray in **Noises Off**, as presented by [the Hudson Players](https://www.hudsonplayers.com/) November 1-16, 2019. The play was directed by Brad Kisner, produced by Gary Maher & Trish Davis, and was written by Michael Frayn.
