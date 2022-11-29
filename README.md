@@ -2,7 +2,7 @@
 
 This is the page describing Thomas Love's theatrical exploits.
 
-## My next performances will be as Chris in The Play That Goes Wrong at [Aurora Community Theatre](https://www.auroracommunitytheatre.com/shows-1) January 27 - February 18, 2023
+## My next performances will be as Chris in [The Play That Goes Wrong](https://www.youtube.com/watch?v=DOWO4gq-whg&t=1s) at [Aurora Community Theatre](https://www.auroracommunitytheatre.com/shows-1) January 27 - February 18, 2023
 
 ## If I'm a student/friend/neighbor/colleague of yours, are you expecting me to come see you in theater?
 
