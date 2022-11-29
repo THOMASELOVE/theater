@@ -2,7 +2,7 @@
 
 This is the page describing Thomas Love's theatrical exploits.
 
-## My next performances will be as Chris and Inspector Carter in The Play That Goes Wrong at [Aurora Community Theatre](https://www.auroracommunitytheatre.com/shows-1) January 27 - February 18, 2023
+## My next performances will be as Chris in The Play That Goes Wrong at [Aurora Community Theatre](https://www.auroracommunitytheatre.com/shows-1) January 27 - February 18, 2023
 
 ## If I'm a student/friend/neighbor/colleague of yours, are you expecting me to come see you in theater?
 
@@ -16,7 +16,7 @@ Any one of a number of things. My [one-page theatrical resume is here](https://g
 
 ## Last Few Productions
 
-- I played Brother Jeremiah in "Something Rotten" at Hudson Players, directed by Claudia Lillibridge, with musical direction by Ron Jones, and choreography by Conni Caldren Fleming, and produced by Gary Maher in October/November 2022.
+- I played Brother Jeremiah in **Something Rotten** at Hudson Players, directed by Claudia Lillibridge, with musical direction by Ron Jones, and choreography by Conni Caldren Fleming, and produced by Gary Maher in October/November 2022.
 - I played Chief Inspector Pinckney and various other small roles in **A Gentleman's Guide to Love and Murder** at Aurora Community Theatre, directed by Ann Nyenhuis, musically directed by Dustin Oliver, choreographed by Marc Stiver-Howard and produced by Katie Hintze in October/November 2021.
   - I then reprised the same roles in five performances of the Chagrin Valley Little Theatre's production, directed by Marc Stiver-Howard and musically directed by Keith Stiver in March 2022.
 - I played Selsdon Mowbray in **Noises Off**, as presented by [the Hudson Players](https://www.hudsonplayers.com/) November 1-16, 2019. The play was directed by Brad Kisner, produced by Gary Maher & Trish Davis, and was written by Michael Frayn.
