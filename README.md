@@ -2,11 +2,11 @@
 
 This is the page describing Thomas Love's theatrical exploits.
 
-## My next performances will be as Christopher Belling in the musical [Curtains](https://www.hudsonplayers.com/now-playing) at Hudson Players February 2-24, 2024.
+## My next performances will be as Justice Wargrave in the play [And Then There Were None](https://www.auroracommunitytheatre.com/shows-1-1) at Hudson Players October 25 - November 16, 2024
 
-"Curtains" is a harmonious fusion of Agatha Christie-esque mystery and the razzle-dazzle of golden-age musicals, and was nominated for eight Tony Awards when it opened in 2007, winning for Best Performance by a Leading Actor. The musical is a send-up of backstage murder mystery plots, set in 1959 Boston, Massachusetts, and follows the fallout when Jessica Cranshaw, the supremely untalented star of Robbin' Hood of the Old West is murdered during her opening night curtain call. I play the role of Christopher Belling, the English director of the musical-within-a-musical. Curtains' captivating score and cunning plot will keep you guessing until the final curtain falls. There are some adult themes in this production.
+"And Then There Were None" is one of Agatha Christie's most famous mysteries. The play begins when eight disparate guests arrive at an isolated mansion located on an island off the coast of Devon, and are tended to by two married domestics who prepared the house for their arrival. During the first evening a gramophone recording accuses all ten people of past crimes that went unpunished by the law. Soon they start dying one at a time, and the remaining guests deduce that the murderer is one of their own.
 
-If you'd like to come, that would be great, and all of the information you need to buy tickets (they will **sell quickly**) is available by clicking the "Get Tickets" link at <https://www.hudsonplayers.com/>. Tickets are $15, and $12 for students and seniors. Performances are February 2, 3, 9, 10, 11, 16, 17, 18, 23 and 24, 2024. Friday and Saturday night shows begin at 8 PM, and the two Sunday matinees start at 2 PM.
+If you'd like to come, that would be great, and all of the information you need to buy tickets (they will **sell quickly**) is available by clicking the "Buy Tickets" link at <https://www.auroracommunitytheatre.com>. Tickets are $20. Performances are on Friday and Saturday evenings at 7:30 PM.
 
 ## If I'm a student/friend/neighbor/colleague of yours, are you expecting me to come see you in theater?
 
@@ -20,6 +20,7 @@ Any one of a number of things. My [one-page theatrical resume is here](https://g
 
 ## Last Few Productions
 
+- I played Christopher Belling in **Curtains** at Hudson Players, directed by Claudia Lillibridge, with musical direction by Bridget Jankowski, and choreography by Conni Caldren Fleming, and produced by Gary Maher in February 2024. An excerpt from this production won a regional [Ohio Community Theatre Association](https://www.octa1953.org/) award, as did I for my performance.
 - I played Chris in **The Play That Goes Wrong** at Aurora Community Theatre, directed by Mark Cipra, produced by Amanda Ruby and stage managed and technical directed by Ann Nyenhuis, in January/February 2023.
 - I played Brother Jeremiah in **Something Rotten** at Hudson Players, directed by Claudia Lillibridge, with musical direction by Ron Jones, and choreography by Conni Caldren Fleming, and produced by Gary Maher in October/November 2022.
 - I played Chief Inspector Pinckney and various other small roles in **A Gentleman's Guide to Love and Murder** at Aurora Community Theatre, directed by Ann Nyenhuis, musically directed by Dustin Oliver, choreographed by Marc Stiver-Howard and produced by Katie Hintze in October/November 2021.
