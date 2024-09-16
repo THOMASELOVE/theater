@@ -2,7 +2,7 @@
 
 This is the page describing Thomas Love's theatrical exploits.
 
-## My next performances will be as Justice Wargrave in the play [And Then There Were None](https://www.auroracommunitytheatre.com/shows-1-1) at Aurora Community Theatre October 25 - November 16, 2024
+## My next performances will be as Justice Wargrave in the play [And Then There Were None](https://www.auroracommunitytheatre.com/) at Aurora Community Theatre October 25 - November 16, 2024
 
 "And Then There Were None" is one of Agatha Christie's most famous mysteries. The play begins when eight disparate guests arrive at an isolated mansion located on an island off the coast of Devon, and are tended to by two married domestics who prepared the house for their arrival. During the first evening a gramophone recording accuses all ten people of past crimes that went unpunished by the law. Soon they start dying one at a time, and the remaining guests deduce that the murderer is one of their own.
 
