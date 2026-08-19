@@ -2,11 +2,11 @@
 
 This is the page describing Thomas Love's theatrical exploits.
 
-## My next performances will be as Justice Wargrave in the play [And Then There Were None](https://www.auroracommunitytheatre.com/) at Aurora Community Theatre October 25 - November 16, 2024
+## My next performances will be as Bellomy in [The Fantasticks](https://theatreinthecircle.org/) at Theatre in the Circle September 11-13, 2026
 
-"And Then There Were None" is one of Agatha Christie's most famous mysteries. The play begins when eight disparate guests arrive at an isolated mansion located on an island off the coast of Devon, and are tended to by two married domestics who prepared the house for their arrival. During the first evening a gramophone recording accuses all ten people of past crimes that went unpunished by the law. Soon they start dying one at a time, and the remaining guests deduce that the murderer is one of their own.
+"Try to Remember" a time when falling in love was pure magic. The world's longest-running musical, The Fantasticks, weaves a whimsical, romantic fable about a boy, a girl, their meddling fathers, and a wall that divides them. With its iconic score and breathtaking simplicity, it’s a timeless journey through adolescent illusions and the sweet, messy realities of true love. I play one of the meddling fathers.
 
-If you'd like to come, that would be great, and all of the information you need to buy tickets (they will **sell quickly**) is available by clicking the "Buy Tickets" link at <https://www.auroracommunitytheatre.com>. Tickets are $20. Performances are on Friday and Saturday evenings at 7:30 PM.
+If you'd like to come, that would be great, and all of the information you need to buy tickets is available by clicking the "Get Tickets Now" link at <https://theatreinthecircle.org/>. Tickets are $25, and the theater is located at Judson Manor, right on the CWRU Campus. Performances are on Friday evening at 7:30 PM and Saturday and Sunday afternoon at 2 PM.
 
 ## If I'm a student/friend/neighbor/colleague of yours, are you expecting me to come see you in theater?
 
@@ -20,6 +20,9 @@ Any one of a number of things. My [one-page theatrical resume is here](https://g
 
 ## Last Few Productions
 
+- I sang "I am the very model of a modern Major General" from The Pirates of Penzance, among other things, as part of the 50th Anniversary (and final) concert of the Happy Ending Lyric Players in May 2026.
+- I have been fortunate enough to sing several concerts with the [Chagrin Falls Studio Orchestra](https://thecfso.com/) under the direction of Stephen Eva over the years: most recently in December 2025.
+- I played Justice Wargrave in **And Then There Were None** at Aurora Community Theatre, in November 2024. A "fun" fact: I literally broke my leg three days after this production closed.
 - I played Christopher Belling in **Curtains** at Hudson Players, directed by Claudia Lillibridge, with musical direction by Bridget Jankowski, and choreography by Conni Caldren Fleming, and produced by Gary Maher in February 2024. An excerpt from this production won a regional [Ohio Community Theatre Association](https://www.octa1953.org/) award, as did I for my performance.
 - I played Chris in **The Play That Goes Wrong** at Aurora Community Theatre, directed by Mark Cipra, produced by Amanda Ruby and stage managed and technical directed by Ann Nyenhuis, in January/February 2023.
 - I played Brother Jeremiah in **Something Rotten** at Hudson Players, directed by Claudia Lillibridge, with musical direction by Ron Jones, and choreography by Conni Caldren Fleming, and produced by Gary Maher in October/November 2022.
